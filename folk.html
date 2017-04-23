@@ -5,22 +5,38 @@
     <meta charset="utf-8">
     <title></title>
     <style>
-      p { clear: both; }
     </style>
-    <script src="/audiojs/audiojs/audio.min.js"></script>
-    <script>
-      audiojs.events.ready(function() {
-        var as = audiojs.createAll();
-      });
-    </script>
+    <script type="text/javascript" src="/js/amplitude.js"></script>
+    <script type="text/javascript" src="/js/amplitude.min.js"></script>
+    <script type="text/javscript">
+    Amplitude.init({
+        "songs": [
+            {
+                "name": "Song Name 1",
+                "artist": "Artist Name",
+                "album": "Album Name",
+                "url": "/a/folk.mp3",
+                "cover_art_url": "/cover/art/url.jpg"
+            },
+            {
+                "name": "Song Name 2",
+                "artist": "Artist Name",
+                "album": "Album Name",
+                "url": "/song/url.mp3",
+                "cover_art_url": "/cover/art/url.jpg"
+            },
+            {
+                "name": "Song Name 3",
+                "artist": "Artist Name",
+                "album": "Album Name",
+                "url": "/song/url.mp3",
+                "cover_art_url": "/cover/art/url.jpg"
+            }
+        ]
+    });
+</script>
   </head>
   <body>
-    <h1>audiojs.createAll()</h1>
-
-    <p>Load local file</p>
-    <audio preload="auto">
-      <source src="/a/folk.2015.carol.mp3">
-    </audio>
 
   </body>
 </html>
