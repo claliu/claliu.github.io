@@ -1,22 +1,26 @@
-<html>
-<head>
-<script type="text/javascript" src="/amplitudejs/js/amplitude.js"></script>
-</head>
 
-<body>
-this is fork
-<script type="text/javscript">
-    Amplitude.init({
-        "songs": [
-            {
-                "name": "Song Name 1",
-                "artist": "Artist Name",
-                "album": "Album Name",
-                "url": “/a/folk.2015.carol.mp3"
-            }
-        ]
-    });
-</script>
+<!DOCTYPE html>
+<html lang="en">
+  <head>
+    <meta charset="utf-8">
+    <title></title>
+    <style>
+      p { clear: both; }
+    </style>
+    <script src="/audiojs/audiojs/audio.min.js"></script>
+    <script>
+      audiojs.events.ready(function() {
+        var as = audiojs.createAll();
+      });
+    </script>
+  </head>
+  <body>
+    <h1>audiojs.createAll()</h1>
 
-</body>
+    <p>Load local file</p>
+    <audio preload="auto">
+      <source src="/a/folk.2015.carol.mp3">
+    </audio>
+
+  </body>
 </html>
