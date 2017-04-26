@@ -323,6 +323,12 @@ kbd {
 }
 </style>
 
+<script src="/audiojs/audio.min.js"></script>
+<script>
+  audiojs.events.ready(function() {
+    var as = audiojs.createAll();
+  });
+</script>
 
 </head>
 
@@ -341,9 +347,9 @@ kbd {
 
 <tbody>
 <tr>
-<td>style</td>
-<td>I travel in style, or I don&#39;t travel at all.</td>
-<td>audioHere</td>
+<td>bring up</td>
+<td>Now, I'm gonna bring up some soldiers...</td>
+<td><audio src="/a/bring.up.1994.forrest.gump.en.mp3" preload="auto" /></td>
 </tr>
 </tbody>
 </table>
