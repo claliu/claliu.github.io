@@ -3,23 +3,36 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### rag
+### bow
 
-But let's not talk about sordid things like money.
+so she might see the ring.
 
-How good of you to come and see me...
+Then I bowed and smiled like anything.
 
-And how pretty you look.
+Sarah Sims.
 
-Oh, Rhett, how you do run on...
+I'm sure she was not half as radiant
+as you, my dear.
 
-teasing a country girl like me.
+Oh, Mama!
 
-Thank heavens you're not in rags...
+You must all go to Brighton,
 
-I'm tired of seeing women in rags.
+for that is the place to get husbands.
 
-Turn around.
+### bow
+
+Do you see how the men's shirt-fronts
+
+and their bow ties, how they glow more than the women' dresses?
+
+Yes.  Do you know why?
+
+Why?  Tide.
+
+The washing powder.
+
+The fluorescence in the washing powder is caught by the UV light.
 
 ***
 
