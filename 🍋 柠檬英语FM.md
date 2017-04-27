@@ -3,20 +3,33 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### ahead
+### fault
 
-I can't feel that.
+If the second, I can admire you
+much better from here.
 
-It's really sweet and everything, but...
+Shocking.
 
-You can't just sit there
-and put everybody's lives ahead of yours...
+How shall we punish him for such a speech?
 
-and think that counts as love.
+We could always laugh at him.
 
-I don't want to be somebody's crush.
+Oh, no, Mr Darcy is not to be teased.
 
-I want people to like the real me.
+Are you too proud, Mr Darcy?
+
+And would you consider pride
+a fault or a virtue?
+
+That I couldn't say.
+
+Because we're doing our best
+to find fault in you.
+
+Maybe it's that I find it hard to forgive
+
+the follies and vices of others,
+or their of fences against me.
 
 ***
 
