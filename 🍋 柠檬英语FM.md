@@ -3,19 +3,13 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### novel
+### author
 
-Anyone?
+I'm shocked. All right.
+Well, you can skip the quiz...
 
-He was British.
-
-He also invented the serial.
-
-In fact, at the end of
-the third chapter of his first novel...
-
-he had a man hanging from
-a cliff by his fingernails.
+if you tell me which author
+invented the paperback book.
 
 ***
 
