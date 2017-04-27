@@ -3,30 +3,15 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### pineapple
+### dessert
 
-Anyway, like I was saying,
-shrimp is the fruit of the sea.
+Isn't this better than sitting at a table?
 
-You can barbecue it,
-boil it, broil it, bake it, sauté it.
+A girl hasn't got but two sides to her at a table.
 
-There's shrimp kebabs, shrimp Creole...
+I'll go get her dessert.
 
-...shrimp gumbo, pan fried,
-deep fried, stir fried.
-
-There's pineapple shrimp,
-lemon shrimp,
-
-coconut shrimp, pepper shrimp...
-
-...shrimp soup, shrimp stew,
-shrimp salad, shrimp and potatoes,
-
-shrimp burger, shrimp sandwich...
-
-That's... That's about it.
+Here, she said me.  Allow me, Miss O'Hara.
 
 ***
 
