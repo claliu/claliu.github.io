@@ -3,27 +3,29 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### patience
+### unbelievable
 
-At present, I have not room enough
-to do them justice.
+Gus!
 
-Well, I think it's amazing
-you young ladies
+Oh, you look so handsome!
 
-have the patience to be so accomplished.
+Thank you, ma'am.
+Wow.
 
-What do you mean, Charles?
+Hazel, Gus is here...
 
-You all paint tables and play the piano
+looking incredible!
 
-and embroider cushions.
+I hear this restaurant
+is unbelievable.
 
-I never heard of a young lady
-but people say she is accomplished.
+Wow.
 
-DARCY: The word is indeed applied
-too liberally.
+What?
+
+You look gorgeous.
+
+Thanks.
 
 ***
 
