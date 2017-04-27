@@ -3,22 +3,30 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### steak
+### pineapple
 
-Now, go shake down your gear,
-see the platoon sergeant,
+Anyway, like I was saying,
+shrimp is the fruit of the sea.
 
-draw what you need for the field.
+You can barbecue it,
+boil it, broil it, bake it, sauté it.
 
-If you boys are hungry,
-we got steaks burning right over here.
+There's shrimp kebabs, shrimp Creole...
 
-Two standing orders in this platoon:
+...shrimp gumbo, pan fried,
+deep fried, stir fried.
 
-One, take good care of your feet,
+There's pineapple shrimp,
+lemon shrimp,
 
-two, try not to do anything stupid,
-like getting yourself killed.
+coconut shrimp, pepper shrimp...
+
+...shrimp soup, shrimp stew,
+shrimp salad, shrimp and potatoes,
+
+shrimp burger, shrimp sandwich...
+
+That's... That's about it.
 
 ***
 
