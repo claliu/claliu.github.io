@@ -3,13 +3,20 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### author
+### ahead
 
-I'm shocked. All right.
-Well, you can skip the quiz...
+I can't feel that.
 
-if you tell me which author
-invented the paperback book.
+It's really sweet and everything, but...
+
+You can't just sit there
+and put everybody's lives ahead of yours...
+
+and think that counts as love.
+
+I don't want to be somebody's crush.
+
+I want people to like the real me.
 
 ***
 
