@@ -3,33 +3,27 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### fault
+### patience
 
-If the second, I can admire you
-much better from here.
+At present, I have not room enough
+to do them justice.
 
-Shocking.
+Well, I think it's amazing
+you young ladies
 
-How shall we punish him for such a speech?
+have the patience to be so accomplished.
 
-We could always laugh at him.
+What do you mean, Charles?
 
-Oh, no, Mr Darcy is not to be teased.
+You all paint tables and play the piano
 
-Are you too proud, Mr Darcy?
+and embroider cushions.
 
-And would you consider pride
-a fault or a virtue?
+I never heard of a young lady
+but people say she is accomplished.
 
-That I couldn't say.
-
-Because we're doing our best
-to find fault in you.
-
-Maybe it's that I find it hard to forgive
-
-the follies and vices of others,
-or their of fences against me.
+DARCY: The word is indeed applied
+too liberally.
 
 ***
 
