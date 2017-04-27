@@ -3,66 +3,23 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### manner
+### scream
 
-I said I'm not interested.
+This war talk's spoiling all the fun at every party this spring.
 
-But you promised!
+I get so bored I could scream!
 
-Nothing happens!
-They're fiction!
+Besides, there isn't going to be any war...
 
-They cease to exist the
-moment the novel ends.
+Not gonna be any war?
 
-But they can't!
+Why, honey, of course there's going to be a war!
 
-I get it in a literary sense
-or whatever, but...
+If either of you says "war" just once again...
 
-I can't do this, Lidewij.
+I'll go in the house and slam the door.
 
-It's impossible
-not to imagine what...
-
-I will not indulge
-your childish whims.
-
-I refuse to pity
-you in the manner
-
-in which you are accustomed.
-
-I do not want your pity! VAN
-Of course you do!
-
-Like all sick kids, your
-existence depends on it.
-
-You are fated to live
-out your days... Peter!
-
-...as the child you
-were when diagnosed.
-
-A child who believes there is
-a life after a novel ends.
-
-And we as adults, we pity this.
-
-So, we pay for your treatments,
-your oxygen machines.
-
-Peter, that's enough.
-
-You are a side-effect
-to an evolutionary process...
-
-that cares little
-for individual lives.
-
-You are a failed
-experiment in mutation.
+But, Scarlett, honey...  Don't you want us to have a war?
 
 ***
 
