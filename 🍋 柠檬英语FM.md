@@ -3,23 +3,23 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### scream
+### rag
 
-This war talk's spoiling all the fun at every party this spring.
+But let's not talk about sordid things like money.
 
-I get so bored I could scream!
+How good of you to come and see me...
 
-Besides, there isn't going to be any war...
+And how pretty you look.
 
-Not gonna be any war?
+Oh, Rhett, how you do run on...
 
-Why, honey, of course there's going to be a war!
+teasing a country girl like me.
 
-If either of you says "war" just once again...
+Thank heavens you're not in rags...
 
-I'll go in the house and slam the door.
+I'm tired of seeing women in rags.
 
-But, Scarlett, honey...  Don't you want us to have a war?
+Turn around.
 
 ***
 
