@@ -3,29 +3,22 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### unbelievable
+### steak
 
-Gus!
+Now, go shake down your gear,
+see the platoon sergeant,
 
-Oh, you look so handsome!
+draw what you need for the field.
 
-Thank you, ma'am.
-Wow.
+If you boys are hungry,
+we got steaks burning right over here.
 
-Hazel, Gus is here...
+Two standing orders in this platoon:
 
-looking incredible!
+One, take good care of your feet,
 
-I hear this restaurant
-is unbelievable.
-
-Wow.
-
-What?
-
-You look gorgeous.
-
-Thanks.
+two, try not to do anything stupid,
+like getting yourself killed.
 
 ***
 
