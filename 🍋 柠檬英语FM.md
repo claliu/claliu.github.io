@@ -3,15 +3,13 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### dessert
+### amount
 
-Isn't this better than sitting at a table?
+And don't forget to count the money.
 
-A girl hasn't got but two sides to her at a table.
+Come back with the right amount
 
-I'll go get her dessert.
-
-Here, she said me.  Allow me, Miss O'Hara.
+or don't bother coming back at all.
 
 ***
 
