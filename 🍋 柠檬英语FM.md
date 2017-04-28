@@ -3,35 +3,22 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### birthplace
+### adventure
 
-Totally irrelevant.
+and people are beginning to talk.
 
-Do you think that homosexuals deserve special treatment?
+What's that book you've got there?
 
-Hell, no!  We're in Philadelphia...
+The Adventures of Tom Sawyer.
 
-the City of Brotherly Love, birthplace of freedom...
+Clarence, you do a good job
+with George Bailey
 
-where the Founding Fathers authored the Declaration of Independence.
+and you'll get your wings.
 
-I don't recall that glorious document saying...
+Oh, thank you, sir. Thank you.
 
-anything about all straight men are created equal.
-
-I believe it says all men are created equal.
-
-Gimme a goddamn break.
-
-As far as someone being fired from a law firm or a business...
-
-if we found that their action was discriminatory...
-
-they'd do no business with the city.
-
-Thank you, Mayor.  Yo!
-
-You're not getting a little light in the sneakers, are you, pal?
+Poor George. Sit down.
 
 ***
 
