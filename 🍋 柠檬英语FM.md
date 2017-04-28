@@ -3,19 +3,19 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### on the contrary
+### take a chance
 
-If it is not true,
-let Mr Darcy contradict it himself.
+well, if I were the boy
+and I'd done the stabbing and everything...
 
-Till he does, I hope never to encounter him.
+I'd take a chance
+and go back for the knife.
 
-Poor, unfortunate Mr Wickham.
+I'll bet he figured that nobody
+had seen him running out...
 
-On the contrary,
-Wickham is twice the man Darcy is.
-
-And let us hope, a rather more willing dancer.
+and that the body wouldn't be discovered
+till the next day.
 
 ***
 
