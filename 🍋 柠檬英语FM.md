@@ -3,43 +3,29 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### genuine
+### sidewalk
 
-Wyant, Wheeler aggressively recruited me.
+I hope you understand. My boss
+sent me to Brooklyn, then Queens.
 
-They were the most prestigious firm in Philadelphia...
+Now he wants me in Long Island
 
-full of opportunity.
+to take a few clients out
+for a night on the town.
 
-And I was impressed with the partners.
+I'm sorry, but we're not allowed
+to cash checks from other banks.
 
-Including Charles Wheeler?  Particularly Charles.
+How would we know if they were good?
+What did you say your name was?
 
-What impressed you about him?
+Ashley.
+Ashley.
 
-He was the kind of lawyer I thought I wanted to be.
+You know what I found
+on the sidewalk out there?
 
-What kind of lawyer is that?
-
-Possessed of an encyclopaedic knowledge of the law...
-
-a razor-sharp litigator, genuine leader.
-
-Gifted at bringing out the very best in others...
-
-and an awesome ability to illuminate...
-
-the most complex of legal concepts to a colleague, a courtroom...
-
-to the man in the street.
-
-The kind of person who can play three sets of tennis...
-
-but doesn't sweat.
-
-Underneath an elegant surface...
-
-he has an adventurous spirit.
+Must have slipped right off your neck.
 
 ***
 
