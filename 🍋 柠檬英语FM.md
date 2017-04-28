@@ -3,17 +3,19 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### scene
+### permit
 
-Has the war started?
+Gentlemen, if you wish to...
 
-Sir, you should have made your presence known.
+lead the opening reel with the lady of your choice...
 
-In the middle of that beautiful love scene?
+you must bid for her.
 
-That wouldn't have been very tactful, would it?
+Caroline Meade, how can you permit...
 
-But don't worry, your secret is safe with me.
+your husband to conduct this...
+
+this slave auction?
 
 ***
 
