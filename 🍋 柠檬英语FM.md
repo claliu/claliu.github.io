@@ -3,17 +3,30 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### indeed
+### as for
 
-Hey. Rik Smits jersey?
+Dear Charlotte,
+thank you for your letter.
 
-Yeah, it is indeed.
-I loved that guy.
+I am so glad the house, furniture,
+and roads are all to your taste
 
-I'm Augustus Waters.
+and that Lady Catherine's behaviour
+is friendly and obliging.
 
-Nice to meet you.
-I'm Michael.
+What with your departure, Jane's to London,
+
+and the militia to the North
+with the colourful Mr Wickham,
+
+I must confess, the view from
+where I sit has been rather grey.
+
+As for the favour you ask,
+it is no favour at all.
+
+I would be happy to visit you
+at your earliest convenience.
 
 ***
 
