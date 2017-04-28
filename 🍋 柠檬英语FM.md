@@ -3,15 +3,43 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### rude
+### genuine
 
-I was nice to you. Don't torture me for it.
+Wyant, Wheeler aggressively recruited me.
 
-If we could just go somewhere for a minute...
+They were the most prestigious firm in Philadelphia...
 
-I don't wanna be rude to my friends.
+full of opportunity.
 
-Okay.
+And I was impressed with the partners.
+
+Including Charles Wheeler?  Particularly Charles.
+
+What impressed you about him?
+
+He was the kind of lawyer I thought I wanted to be.
+
+What kind of lawyer is that?
+
+Possessed of an encyclopaedic knowledge of the law...
+
+a razor-sharp litigator, genuine leader.
+
+Gifted at bringing out the very best in others...
+
+and an awesome ability to illuminate...
+
+the most complex of legal concepts to a colleague, a courtroom...
+
+to the man in the street.
+
+The kind of person who can play three sets of tennis...
+
+but doesn't sweat.
+
+Underneath an elegant surface...
+
+he has an adventurous spirit.
 
 ***
 
