@@ -3,26 +3,21 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### stare at
+### spot
 
-which is why I will end up an old maid.
+What did you think of the case?
 
-Do you really believe he liked me, Lizzie?
+I mean, it had a lot of interest for me.
 
-Jane, he danced with you most of the night
+No real... dead spots.
+You know what I mean?
 
-and stared at you for the rest of it.
+I tell you, we were lucky
+to get a murder case.
 
-But I give you leave to like him.
-You've liked many a stupider person.
+I figured us for an assault or burglary.
 
-Now, you're a great deal too apt
-to like people in general, you know.
-
-All the world is good and agreeable
-in your eyes.
-
-Not his friend.
+Boy, they can be the dullest.
 
 ***
 
