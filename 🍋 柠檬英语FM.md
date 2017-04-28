@@ -3,16 +3,25 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### account for
+### seek
 
-You can be at no loss, Miss Bennet,
-to understand why I am here.
+This is a quiet, frightened,
+insignificant old man who...
 
-Indeed you're mistaken. I cannot
-account for this honour at all.
+who has been nothing all his life...
 
-Miss Bennet, I warn you,
-I am not to be trifled with.
+who has never had recognition...
+
+or his name in the newspapers.
+
+Nobody knows him.
+
+Nobody quotes him.
+
+Nobody seeks his advice after 75 years.
+
+Gentlemen, that's a very sad thing 
+to be nothing.
 
 ***
 
