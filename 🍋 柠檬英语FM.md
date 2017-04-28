@@ -3,31 +3,16 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### account
+### account for
 
-There you are.
-That'll close my account.
+You can be at no loss, Miss Bennet,
+to understand why I am here.
 
-Your account's still here. That's a loan.
+Indeed you're mistaken. I cannot
+account for this honour at all.
 
-Okay. All right, Ed?
-I got $300 here, George.
-
-Now, Ed, what'll it take
-till the bank opens? What do you need?
-
-Well, I suppose $20.
-
-$20. Now you're talking.
-Thanks, Ed. That's fine.
-
-All right, now, Mrs. Thompson,
-how much do you want?
-
-But it's your own money, George.
-
-Never mind about that.
-How much do you want?
+Miss Bennet, I warn you,
+I am not to be trifled with.
 
 ***
 
