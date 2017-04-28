@@ -3,11 +3,17 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### bring up
+### scene
 
-I got your message...
+Has the war started?
 
-I'll have them bring my supper up here too.
+Sir, you should have made your presence known.
+
+In the middle of that beautiful love scene?
+
+That wouldn't have been very tactful, would it?
+
+But don't worry, your secret is safe with me.
 
 ***
 
