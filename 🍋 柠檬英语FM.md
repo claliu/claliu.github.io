@@ -3,19 +3,17 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### take a chance
+### indeed
 
-well, if I were the boy
-and I'd done the stabbing and everything...
+Hey. Rik Smits jersey?
 
-I'd take a chance
-and go back for the knife.
+Yeah, it is indeed.
+I loved that guy.
 
-I'll bet he figured that nobody
-had seen him running out...
+I'm Augustus Waters.
 
-and that the body wouldn't be discovered
-till the next day.
+Nice to meet you.
+I'm Michael.
 
 ***
 
