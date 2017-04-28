@@ -3,22 +3,12 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### bay
+### envelope
 
-Hey! Wait!
+And did you put the envelope
+in your pocket?
 
-That was my stolen machine.
-
-Unless she was with
-a guy who sold them too.
-
-Which was unlikely...
-
-... because I was the only one
-selling them in the Bay Area.
-
-I spent our entire life savings
-on these things.
+Yeah, maybe, maybe.
 
 ***
 
