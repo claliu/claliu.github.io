@@ -3,23 +3,26 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### go ahead
+### stare at
 
-You get your strength from this red earth of Tara, Scarlett.
+which is why I will end up an old maid.
 
-You're part of it, and it's part of you.
+Do you really believe he liked me, Lizzie?
 
-Rhett, I'd give anything to have Tara...
+Jane, he danced with you most of the night
 
-the way it was before the war.
+and stared at you for the rest of it.
 
-Would you? Then go ahead and make it that way.
+But I give you leave to like him.
+You've liked many a stupider person.
 
-Spend whatever you want...
+Now, you're a great deal too apt
+to like people in general, you know.
 
-make it as fine a plantation as it ever was.
+All the world is good and agreeable
+in your eyes.
 
-Oh, Rhett.
+Not his friend.
 
 ***
 
