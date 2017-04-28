@@ -3,21 +3,31 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### spot
+### account
 
-What did you think of the case?
+There you are.
+That'll close my account.
 
-I mean, it had a lot of interest for me.
+Your account's still here. That's a loan.
 
-No real... dead spots.
-You know what I mean?
+Okay. All right, Ed?
+I got $300 here, George.
 
-I tell you, we were lucky
-to get a murder case.
+Now, Ed, what'll it take
+till the bank opens? What do you need?
 
-I figured us for an assault or burglary.
+Well, I suppose $20.
 
-Boy, they can be the dullest.
+$20. Now you're talking.
+Thanks, Ed. That's fine.
+
+All right, now, Mrs. Thompson,
+how much do you want?
+
+But it's your own money, George.
+
+Never mind about that.
+How much do you want?
 
 ***
 
