@@ -3,22 +3,22 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### adventure
+### bay
 
-and people are beginning to talk.
+Hey! Wait!
 
-What's that book you've got there?
+That was my stolen machine.
 
-The Adventures of Tom Sawyer.
+Unless she was with
+a guy who sold them too.
 
-Clarence, you do a good job
-with George Bailey
+Which was unlikely...
 
-and you'll get your wings.
+... because I was the only one
+selling them in the Bay Area.
 
-Oh, thank you, sir. Thank you.
-
-Poor George. Sit down.
+I spent our entire life savings
+on these things.
 
 ***
 
