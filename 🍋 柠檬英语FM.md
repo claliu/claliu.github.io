@@ -3,30 +3,35 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### as for
+### birthplace
 
-Dear Charlotte,
-thank you for your letter.
+Totally irrelevant.
 
-I am so glad the house, furniture,
-and roads are all to your taste
+Do you think that homosexuals deserve special treatment?
 
-and that Lady Catherine's behaviour
-is friendly and obliging.
+Hell, no!  We're in Philadelphia...
 
-What with your departure, Jane's to London,
+the City of Brotherly Love, birthplace of freedom...
 
-and the militia to the North
-with the colourful Mr Wickham,
+where the Founding Fathers authored the Declaration of Independence.
 
-I must confess, the view from
-where I sit has been rather grey.
+I don't recall that glorious document saying...
 
-As for the favour you ask,
-it is no favour at all.
+anything about all straight men are created equal.
 
-I would be happy to visit you
-at your earliest convenience.
+I believe it says all men are created equal.
+
+Gimme a goddamn break.
+
+As far as someone being fired from a law firm or a business...
+
+if we found that their action was discriminatory...
+
+they'd do no business with the city.
+
+Thank you, Mayor.  Yo!
+
+You're not getting a little light in the sneakers, are you, pal?
 
 ***
 
