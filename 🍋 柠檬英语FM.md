@@ -3,25 +3,19 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### seek
+### on the contrary
 
-This is a quiet, frightened,
-insignificant old man who...
+If it is not true,
+let Mr Darcy contradict it himself.
 
-who has been nothing all his life...
+Till he does, I hope never to encounter him.
 
-who has never had recognition...
+Poor, unfortunate Mr Wickham.
 
-or his name in the newspapers.
+On the contrary,
+Wickham is twice the man Darcy is.
 
-Nobody knows him.
-
-Nobody quotes him.
-
-Nobody seeks his advice after 75 years.
-
-Gentlemen, that's a very sad thing 
-to be nothing.
+And let us hope, a rather more willing dancer.
 
 ***
 
