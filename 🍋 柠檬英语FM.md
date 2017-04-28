@@ -3,19 +3,23 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### permit
+### go ahead
 
-Gentlemen, if you wish to...
+You get your strength from this red earth of Tara, Scarlett.
 
-lead the opening reel with the lady of your choice...
+You're part of it, and it's part of you.
 
-you must bid for her.
+Rhett, I'd give anything to have Tara...
 
-Caroline Meade, how can you permit...
+the way it was before the war.
 
-your husband to conduct this...
+Would you? Then go ahead and make it that way.
 
-this slave auction?
+Spend whatever you want...
+
+make it as fine a plantation as it ever was.
+
+Oh, Rhett.
 
 ***
 
