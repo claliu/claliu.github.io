@@ -3,12 +3,15 @@
 🍋 [柠檬英语](http://www.qin.me/)
 🍋 [柠檬英语FM](http://www.qin.me/fm.html)
 
-### envelope
+### rude
 
-And did you put the envelope
-in your pocket?
+I was nice to you. Don't torture me for it.
 
-Yeah, maybe, maybe.
+If we could just go somewhere for a minute...
+
+I don't wanna be rude to my friends.
+
+Okay.
 
 ***
 
