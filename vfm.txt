@@ -1,9 +1,0 @@
-<script src="/audiojs/audio.min.js"></script>
-<script>
-  audiojs.events.ready(function() {
-    var as = audiojs.createAll();
-  });
-</script>
-
-
-<p><audio src="/a/.mp3" preload="auto" /></p>
