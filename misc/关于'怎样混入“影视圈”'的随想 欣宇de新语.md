@@ -6,7 +6,7 @@
 
 [To find work you love, don't follow your passion](https://www.youtube.com/watch?v=MKlx1DLa9EA) [https://www.youtube.com/watch?v=MKlx1DLa9EA](https://www.youtube.com/watch?v=MKlx1DLa9EA)
 
-[永久链接](https://claliu.github.io/blog/关于'怎样混入“影视圈”'的随想 欣宇de新语.html)
+[永久链接](https://claliu.github.io/blog/%E5%85%B3%E4%BA%8E'%E6%80%8E%E6%A0%B7%E6%B7%B7%E5%85%A5%E2%80%9C%E5%BD%B1%E8%A7%86%E5%9C%88%E2%80%9D'%E7%9A%84%E9%9A%8F%E6%83%B3%20%E6%AC%A3%E5%AE%87de%E6%96%B0%E8%AF%AD.html) [https://claliu.github.io/blog/%E5%85%B3%E4%BA%8E'%E6%80%8E%E6%A0%B7%E6%B7%B7%E5%85%A5%E2%80%9C%E5%BD%B1%E8%A7%86%E5%9C%88%E2%80%9D'%E7%9A%84%E9%9A%8F%E6%83%B3%20%E6%AC%A3%E5%AE%87de%E6%96%B0%E8%AF%AD.html](https://claliu.github.io/blog/%E5%85%B3%E4%BA%8E'%E6%80%8E%E6%A0%B7%E6%B7%B7%E5%85%A5%E2%80%9C%E5%BD%B1%E8%A7%86%E5%9C%88%E2%80%9D'%E7%9A%84%E9%9A%8F%E6%83%B3%20%E6%AC%A3%E5%AE%87de%E6%96%B0%E8%AF%AD.html)
 
 ***
 
