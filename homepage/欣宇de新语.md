@@ -1,4 +1,4 @@
-# [欣宇de新语](https://claliu.github.io/)
+# 欣宇de新语
 
 ***
 
