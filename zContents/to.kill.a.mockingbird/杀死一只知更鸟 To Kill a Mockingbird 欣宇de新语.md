@@ -1,10 +1,8 @@
 # 杀死一只知更鸟 To Kill a Mockingbird
 
-Day May 12
+[杀死一只知更鸟1－1](http://m.ximalaya.com/62053352/sound/29659209) [杀死一只知更鸟1－2](http://m.ximalaya.com/62053352/sound/29659366)
 
-[http://www.ximalaya.com/swf/sound/red.swf?id=37432511](http://www.ximalaya.com/swf/sound/red.swf?id=37432511)
-
-[http://m.ximalaya.com/24274494/sound/37432511](http://m.ximalaya.com/24274494/sound/37432511)
+[01-02 To Kill A Mockingbird - Ch 1](http://m.ximalaya.com/25469081/sound/11363784) [01-03 To Kill A Mockingbird - Ch 1b](http://m.ximalaya.com/25469081/sound/11363785) [01-04 To Kill A Mockingbird - Ch 1c](http://m.ximalaya.com/25469081/sound/11363786) [01-05 To Kill A Mockingbird - Ch 1d](http://m.ximalaya.com/25469081/sound/11363787)
 
 ***
 
